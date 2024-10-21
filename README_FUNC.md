@@ -1,0 +1,1 @@
+forma parte del ejercicio 2.2, estoy repitiendo porque antes me confundí.
