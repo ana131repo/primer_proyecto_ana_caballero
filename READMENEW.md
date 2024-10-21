@@ -1,1 +1,1 @@
-Este es un archivo nuevo para el ejercicio 5.2
+Este es un archivo nuevo para el ejercicio 5.2 "
